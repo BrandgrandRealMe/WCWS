@@ -3,3 +3,5 @@
 
 ##### Suggest your word today! 
 ##### And share this message with your friends too!
+
+### Suggest it here! https://cutt.ly/SuggestWordWCWS
